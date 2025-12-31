@@ -1,0 +1,3 @@
+原文链接：https://seotoprofit.com/t/topic/2290
+
+RVC没训练完要怎么继续训练？还是只能从头开始呢…
